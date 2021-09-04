@@ -6,4 +6,4 @@
 - 🌱 I’m currently learning html & css
 - 💬 Ask me about HTML and Graphics
 - 📫 How to reach me: [Discord](https://discord.com/users/444931909483626498)
-- ⚡ Fun fact: He/Him
+- ⚡ Fun fact: teribble developer, bad english
